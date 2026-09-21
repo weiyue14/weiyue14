@@ -1,4 +1,4 @@
-## Hi there 👋 I'm just TIRED BUT NOT  that OLD
+## Hi there 👋 JUST TIRED BUT NO THAT OLD
 
 <!--
 **weiyue14/weiyue14** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
